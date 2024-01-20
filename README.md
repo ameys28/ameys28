@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ameys28
 - 👀 I’m interested in Software development
-- 🌱 I’m currently learning Thadomal Shahani Engineering College 
+- 🌱 I’m currently learning in Thadomal Shahani Engineering College 
 - 📫 How to reach me email- ameysawant2806@gmail.com
 
 <!---
