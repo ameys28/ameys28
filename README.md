@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **ameysawant2806@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ZIjzwIvQ4FrTPIOoFMwP0ZNwz_ycmDO4/view?usp=drive_link](https://drive.google.com/file/d/1ZIjzwIvQ4FrTPIOoFMwP0ZNwz_ycmDO4/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1arv8yyJ-0s6lkmhBYMHg2XbQwC_jt8c8/view?usp=sharing](https://drive.google.com/file/d/1arv8yyJ-0s6lkmhBYMHg2XbQwC_jt8c8/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
