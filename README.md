@@ -16,7 +16,7 @@
 
 - 🌱 Currently learning and growing in **Full-Stack Web Development**
 - 🚀 All my projects are available at my **[Portfolio](https://portfolio-website-psi-jet.vercel.app/)**
-- 📄 Check out my **[Resume](https://drive.google.com/file/d/10pUMisMTgBC9m-HWrl6ntuwH-0LhQsB-/view?usp=drive_link)**
+- 📄 Check out my **[Resume](https://drive.google.com/file/d/1z0fQpfAPXMweYPxFFuEqBcZXgdkcv3rX/view?usp=sharing)**
 - 📫 Reach me at **ameysawant2806@gmail.com**
 - ⚡ Fun fact: I love turning ideas into real, working products
 
